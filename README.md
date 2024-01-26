@@ -1,1 +1,0 @@
-# demo-site-funko-pops
